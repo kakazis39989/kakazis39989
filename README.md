@@ -8,5 +8,4 @@ meu nome é Karolina Marques
 
   ### você pode entrar em contato comigo 📧
 
-  karolinabmksf@gmail.com
-  karolinabm_
+  karolinabmksf@gmail.com ou peolo meu instagram: karolina_bm
