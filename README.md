@@ -9,3 +9,6 @@ meu nome é Karolina Marques
   ### você pode entrar em contato comigo 📧
 
   karolinabmksf@gmail.com ou peolo meu instagram: karolina_bm
+
+
+![](https://media1.tenor.com/m/AF7FNLzZdp8AAAAd/samantha-rachel.gif)
