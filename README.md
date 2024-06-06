@@ -8,8 +8,8 @@ meu nome é Karolina Marques
 
   ### você pode entrar em contato comigo 📧
 
-  karolinabmksf@gmail.com ou peolo meu instagram: karolina_bm
+  karolinabmksf@gmail.com ou pelo meu instagram: karolina_bm
 
 
 
-![](https://media1.tenor.com/m/AF7FNLzZdp8AAAAd/samantha-rachel.gif)
+![](https://media1.tenor.com/m/0XIeUgUkq_gAAAAC/song-kang-song-kang-de-nani.gif)
